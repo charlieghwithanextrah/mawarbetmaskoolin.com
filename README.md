@@ -1,2 +1,0 @@
-# mawarbetmaskoolin.com
-mawarbetmaskoolin.com
